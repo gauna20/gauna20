@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gauna20 / rigu
+- 👀 I’m interested in several topics ranginging from qhysics -> ML
+- 🌱 I’m currently learning how to be a grad student
+- 📫 How to reach me ... does this thing have a message system?
